@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @veto8
-- 👀 I’m interested in UFO, Antrhoposphie, Freiwirtschaft, Music and  Psychology of science.
-- 🌱 I’m currently learning Antrhoposphie
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on World Changing Projects for the better.
 - 📫 How to reach me veto@myridia.com, Telegram: +66832163880
 - 😄 Pronouns: He
